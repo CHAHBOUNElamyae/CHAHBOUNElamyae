@@ -99,8 +99,8 @@ Exploring applications of:
 
 ## Connect with me
 
-- LinkedIn: [Add your LinkedIn profile]
-- Email: [Add your professional email]
+- 💼 LinkedIn: [Lamyae Chahboune](https://www.linkedin.com/in/lamyae-chahboune)
+- 📧 Email: lamyaechahboune908@gmail.com
 
 ---
 
